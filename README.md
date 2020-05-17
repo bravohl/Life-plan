@@ -1,1 +1,1 @@
-# Life-plan
+# life-plan
